@@ -1,2 +1,1 @@
-# Learning-repo
-This is a learning repo. 
+Welcome to our futuristic and revolutionary project which has the potential to shake the very foundations of the earth! This project is made with the cutting edge technologies which can accompish the herculean task of tracking our attendance without any contact at all! Which means no more fear of covid invading your home because of your dirty thumbs. Thank You for taking the time to read this bullshit.
